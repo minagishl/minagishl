@@ -6,4 +6,4 @@
 
 ### Contact Us
 
-DM us on [Twitter](https://twitter.com/minagishl) or email us at `minagishl@icloud.com`
+DM us on [X (Twitter)](https://twitter.com/minagishl) or email us at `minagishl@icloud.com`
